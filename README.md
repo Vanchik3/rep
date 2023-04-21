@@ -1,1 +1,1 @@
- xdxd salam vanyaa
+ xdxd салам ваня
